@@ -1,0 +1,2 @@
+# Satis-otomasyonu-market-
+Otomasyon
